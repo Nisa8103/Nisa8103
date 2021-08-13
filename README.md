@@ -1,6 +1,6 @@
 - Hi guys, first of all ✨welcome to my profile!✨
 - My name is Khairunnisa Hurun 'Iin and people usually call me Nisa.
- I'm currently studying at Bandung Institute of Technology, faculty of School of Electrical Engineering and Informatics.
+ I'm currently studying at Bandung Institute of Technology, school of Electrical Engineering and Informatics.
 
 
 <!---
